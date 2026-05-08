@@ -125,7 +125,7 @@
 
 ### Bio (parágrafo principal)
 
-Sou Fernanda G. Menezes Ferreira, Arquiteta e Urbanista e Engenheira de Segurança do Trabalho (CAU A309488-0). Atuo em SST desde 2011, dentro de operações reais de risco — não atrás de um manual. A dupla formação me dá uma vantagem prática: leio um canteiro, um layout industrial e um plano de emergência com olhos de quem projetou o espaço, não só de quem auditou depois. Minha trajetória passa por siderurgia, mineração, manutenção industrial e construção pesada, em empresas como Vallourec, VSB (Vallourec & Sumitomo) e Aura Minerals, antes de assumir como Engenheira de Segurança na Trimak Engenharia.
+Sou Fernanda G. Menezes Ferreira, Arquiteta e Urbanista e Engenheira de Segurança do Trabalho (CAU A309488-0). Atuo em SST desde 2011, dentro de operações reais de risco — não atrás de um manual. Minha trajetória passa por Vallourec, VSB, Aura Minerals e Trimak Engenharia. Desde novembro de 2025 atendo como consultora autônoma. A dupla formação me dá uma vantagem prática: leio um canteiro, um layout industrial e um plano de emergência com olhos de quem projetou o espaço, não só de quem auditou depois. Minha trajetória passa por siderurgia, mineração, manutenção industrial e construção pesada, em empresas como Vallourec, VSB (Vallourec & Sumitomo) e Aura Minerals, antes de assumir como Engenheira de Segurança na Trimak Engenharia.
 
 Hoje, em paralelo, ofereço consultoria autônoma a empresas de diversos segmentos, com foco em documentação técnica, treinamentos, mobilização e adequação normativa. O diferencial é simples: você fala diretamente com quem elabora e assina o seu documento, sem camadas de atendimento.
 
